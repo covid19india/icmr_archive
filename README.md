@@ -1,1 +1,1 @@
-Just report archives. Nothing else to see here :)
+Just a reports archive. Nothing else to see here :)
